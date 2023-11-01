@@ -1,4 +1,4 @@
 ### BruinLargeBalls
 instagram: **asm_pretin**
 
-![](https://us-tuna-sounds-images.voicemod.net/4fc763ea-5172-48b5-8068-e5d78ea31249-1690401753468.jpg)
+![](https://imgb.ifunny.co/images/6c6d9f807e5f38e2c7abcddf2c3938848f301c10c9a392186504eb7d468e32a2_1.jpg)
